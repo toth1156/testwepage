@@ -93,15 +93,7 @@ dhn dflhndéfnh kdfnh
 dh ndfkh nfdlhn dflkhnndfhnldnf hdf
 gnfgdnlng dfg 
 asdasdasggsjkgjfkdg
-gfdlhnd lndflhn ldfnhldfn nfdh
-dhn dflhndéfnh kdfnh 
-dh ndfkh nfdlhn dflkhnndfhnldnf hdf
-gnfgdnlng dfg 
-asdasdasggsjkgjfkdg
-gfdlhnd lndflhn ldfnhldfn nfdh
-dhn dflhndéfnh kdfnh 
-dh ndfkh nfdlhn dflkhnndfhnldnf hdf
-gnfgdnlng dfg 
+
 asdasdasggsjkgjfkdg
 gfdlhnd lndflhn ldfnhldfn nfdh
 dhn dflhndéfnh kdfnh 
